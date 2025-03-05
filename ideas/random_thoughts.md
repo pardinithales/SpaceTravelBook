@@ -1,0 +1,2 @@
+- Marte pode ter colônias em 2050.
+- Uso de IA para navegação espacial.
